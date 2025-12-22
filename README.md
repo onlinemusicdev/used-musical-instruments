@@ -29,7 +29,7 @@ Buying secondhand doesn’t have to be risky. On Resyn, every transaction is sup
 
 ## Selling & Trading Your Gear
 
-Got instruments sitting unused? Resyn gives you the tools to **sell used instruments** quickly or even **trade musical instruments** with other musicians. Listings are simple to create, with space for detailed descriptions and high-quality photos. Best of all, our **used music gear marketplace** charges no commission fees—so you keep 100% of what you earn.
+Got instruments sitting unused? Resyn gives you the tools to **sell used instruments** quickly or even **trade musical instruments** with other musicians. Listings are simple to create, with space for detailed descriptions and high-quality photos. Best of all, our [used music gear marketplace](https://www.resyn.com/) charges no commission fees—so you keep 100% of what you earn.
 
 
 
